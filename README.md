@@ -1,0 +1,2 @@
+- Me chamo Lucas
+- Estou fazendo faculdade de bacharelado em sistemas de informação
